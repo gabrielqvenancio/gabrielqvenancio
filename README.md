@@ -7,4 +7,4 @@ Hello there! My name is Gabriel
 - My favorite story games are Ace Attorney, Life is Strange and Pathologic 
 - My favorite competitive games are: Overwatch and Dead by Daylight
 
-If you have anything to ask or share, call me at  !!
+If you have anything to ask or share, call me!!
